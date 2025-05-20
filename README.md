@@ -6,8 +6,8 @@
 
 ---
 
-🎓 **B.Tech CSE | AI Specialization | Bennett University**  
-🧠 **Aspiring SDE | AI/ML Enthusiast | Open Source Contributor**
+🎓 **B.Tech CSE student at Bennett University | Specializing in Artificial Intelligence**  
+💻 **Software Developer | 🔍 AI/ML Enthusiast | 🚀 Problem Solver**
 
 ---
 
